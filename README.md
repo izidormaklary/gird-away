@@ -1,1 +1,1 @@
-https://izidormaklary.github.io/gird-away/
+https://izidormaklary.github.io/grid-away/
